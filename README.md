@@ -29,5 +29,5 @@ mass registration of tik tok accounts, tik tok likes, comments, tik tok latest v
 
 
 
-**Contact for api :** [https://t.me/tiktokpeppa](https://t.me/tiktokpeppa)
-## telegram: @tiktokpeppa
+**Contact for api :** [https://t.me/bloodyev](https://t.me/bloodyev)
+## telegram: @bloodyev

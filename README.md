@@ -29,5 +29,5 @@ mass registration of tik tok accounts, tik tok likes, comments, tik tok latest v
 
 
 ### contact me
-**Contact for api :** [https://t.me/bloodyev](https://t.me/bloodyev)
-## telegram: @bloodyev
+**Contact for api :** [https://t.me/Neo_Galaxy](https://t.me/Neo_Galaxy)
+## telegram: @Neo_Galaxy
